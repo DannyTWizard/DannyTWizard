@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @DannyTWizard
-- 👀 I’m interested in
-- 🌱 I’m currently learning 
-- 💞️ I’m looking to collaborate on
+- 👀 I’m interested in everything
+- 🌱 I’m currently learning  
+- 💞️ I’m looking to collaborate on anything
 - 📫 How to reach me
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: yes
